@@ -9,3 +9,7 @@ As artes visuais em Camaçari movimentam-se através de editais municipais de fo
 2- Artesanato e Arte Hippie:  Expressões muito fortes na região, com destaque para técnicas como trançado em palha de coqueiro, mandalas e esculturas em madeira reciclada ou gesso.
 
 3- Artes Plásticas (Pintura e Desenho):  Obras focadas na identidade local, utilizando diferentes técnicas e suportes. Exemplos incluem os trabalhos de artistas da região como Deo Senna, Jacson Art e Itamar Pinheiro. Com o objetivo de valorizar as artes visuais e o artesanato camaçarienses, a exposição "Arte Hippie" no Boulevard Shopping Camaçari, foi uma das ações realizadas em comemoração aos 263 anos da cidade. Dentre as peças que foram expostas, trabalhos com trançados em palha de coqueiro, esculturas de gesso em molde de areia, fotografias, mandalas tipo filtro dos sonhos e esculturas de madeira reciclada foram as mais famosas. Ao todo,contendo 30 obras que trazem um pouco da identidade, da história e da cultura de nossa cidade.
+
+## Teatro
+O teatro cidade do saber (TCS), é considerado um dos maiores palcos da Bahia, tem capacidade para cerca de 568 de espectadores, e recebe grandes espetáculos no teatro, dança e música na cidade, esta localizado na cidade de 
+Camaçari
