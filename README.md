@@ -15,6 +15,7 @@
 5. Grafite em Camaçari
 6. Expressões religiosas em Camaçari
 7. Conclusão
+8. Referências
 
    Camaçari
    2025
@@ -44,6 +45,8 @@ A Cidade do Saber apresenta diversos cursos artísticos-culturais, como como bal
 O grafite é uma arte gráfica, uma comunicação visual capaz de transmitir mensagens através de desenhos, símbolos e letras elaboradas a partir de um repertório simbólico que pode ser em comum à sociedade em geral ou de conhecimento restrito a pequenos grupos de sujeitos. Pode ser de compreensão clara ou não na medida em que tanto é possível a intervenção forneça uma leitura fácil como distorcida das imagens e letras. Já em camaçari o grafite consolidou-se como uma das principais ferramentas de expressão cultural, revitalização urbana e na inclusão social na sociedade. Movido por editais de icentivo à cultura e por fortes talentos locais,     
 o movimento de arte urbana transformou muros, avenidas e em galerias a céu aberto que celebram a identidade urbana. 
 
+## 7. Conclusão
+Mesmo em uma cidade que está crescimento econômico e social contínuo, parte dos moradores ignora suas raízes ou tradições que aqui estão instaladas. Por isso há a necessidade de recordar e legitimar essa cultura dentro da cidade, a cultura deve ser um objeto que deve ser empregado de forma que seja possível reconectar com outras gerações e espaços, uma que vez poderia ser esquecida completamente sem a manutenção de espaços como a Cidade do Saber, causando uma perda de identidade aos residentes. Dessa forma é necessário que a Secretaria da Cultura de Camaçari esteja engajada na manutenção dessas tradições, assim como dos locais que as comportam.
 
 ## 8. Refêrencias
 
